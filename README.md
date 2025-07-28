@@ -1,3 +1,4 @@
+**⚠WARNING⚠** (1) Please do not mention anything about crushes (aka the person you like or someone likes), I'm just saying because I was in a group who would talk about it all day (they would change their crushes constantly), and it kind of goes to the point they are stalkers, any minimum info abt anyones crush is okay but I really don't wanna remeber of what hapepned in my group. (I also especially don't want to talk about it at all if anyone is sensitive to anything related)
 ![stuff](https://i.pinimg.com/1200x/61/33/f4/6133f4d014af34b435adeb9b1f48466d.jpg)
 
 Hello !! Welcome to my really ridiculous github profile! 
