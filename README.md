@@ -1,4 +1,5 @@
 **⚠WARNING⚠** (1) Please do not mention anything about crushes (aka the person you like or someone likes), I'm just saying because I was in a group who would talk about it all day (they would change their crushes constantly), and it kind of goes to the point they are stalkers, any minimum info abt anyones crush is okay but I really don't wanna remeber of what happened in my group. (I also especially don't want to talk about it at all if anyone is sensitive to anything related)
+
 (2) I do not want to be in another group or any kind of gang, I am fine with only 1 or 2 and never anything more. I don't want to have to try keeping our friendships balanced, since ive already been through it many times and it really gets me (because it can lead to very bad things).
 ![stuff](https://i.pinimg.com/1200x/61/33/f4/6133f4d014af34b435adeb9b1f48466d.jpg)
 
