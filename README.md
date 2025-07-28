@@ -26,6 +26,7 @@ Hello !! Welcome to my really ridiculous github profile!
 - squid game
 - the amazing world of gumball (jokingly)
 - DC , MARVEL (I don't know much but why not)
+- Friday night funkin : FNF (PLEASE INTERACT, I LOVE YOU GUYS)
 - literally anything of my interests in my links!!
 
 **Do not interact**
