@@ -12,8 +12,6 @@
 
 (7) I'm sorry if I can be cold/dry sometimes, I'm really pressured or I just really dont have the mood.
 
-(8) I will never trust anyone completely, never again.
-
 ![stuff](https://i.pinimg.com/1200x/61/33/f4/6133f4d014af34b435adeb9b1f48466d.jpg)
 
 Hello !! Welcome to my really ridiculous github profile! 
