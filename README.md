@@ -1,4 +1,4 @@
-![stuff](https://i.pinimg.com/1200x/61/33/f4/6133f4d014af34b435adeb9b1f48466d.jpg)
+![stuff]((https://i.pinimg.com/736x/ab/c4/43/abc443eac83bdd63f0360491c411f05e.jpg)
 
 Hello !! Welcome to my really ridiculous github profile! 
 *Check the links in my profile for info about me since you stopped by.* (This is for pony town purposes ONLY, I am not referring to any other games)
